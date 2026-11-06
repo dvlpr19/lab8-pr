@@ -1,1 +1,1 @@
-# lab8-pr
+# lab8-prcollaborator qo'shgan qator
